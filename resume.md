@@ -1,6 +1,7 @@
 # Rumi The *Golden Retriever*
 ![A Headshot]([http://url/to/img.png](https://dogtime.com/wp-content/uploads/sites/12/2011/01/GettyImages-140388410-e1692223356634.jpg?w=1024))
 IMG_3429.jpeg
+![Me](IMG_3429.jpeg)
 ## A Resume for my new modeling campaign with PetCo
 My mom thinks I am too young to have social media access (I am two years old but that is like 24 in dog years!) but you can contact me by opening a bag of treats and I will be there asap)
 
