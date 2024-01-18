@@ -13,8 +13,8 @@ As a farm golden now living in the City I am trained for the hustle and bustle o
 - Puppy Boot Camp [6 week course] located in Ballard
 - Certified Handsome
 
-[My TikTok account ran by my mama who is of age]: https://www.tiktok.com/@goodboyrumi?_t=8j7QeFGhhNO&_r=1\ulnone
+[My TikTok account ran by my mama who is of age](https://www.tiktok.com/@goodboyrumi?_t=8j7QeFGhhNO&_r=1\ulnone)
 
-[Adopt a pup just like me]: "https://www.adoptapet.com/s/adopt-a-golden-retriever/washington/seattle"}}{\fldrslt \ul https://www.adoptapet.com/s/adopt-a-golden-retriever/washington/seattle
+[Adopt a pup just like me](https://www.adoptapet.com/s/adopt-a-golden-retriever/washington/seattle)
 
-[some FAQS about my breed]: "https://dawgiebowl.com/blog/raising-a-golden-retriever/"}}{\fldrslt \ul https://dawgiebowl.com/blog/raising-a-golden-retriever/
+[Some FAQ's about my breed](https://dawgiebowl.com/blog/raising-a-golden-retriever/)
