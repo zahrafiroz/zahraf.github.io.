@@ -7,8 +7,7 @@ As a farm golden now living in the City I am trained for the hustle and bustle o
 
 ## Experience and Education
 ##University of Washington Seattle Campus b.a. in Bestest Boy
-* [University of Washington][] graduated valedictorian *
-** Teachers PawSistant **
+#**Teachers PawSistant**
 - Being a good boy **the goodest boy to be exact**.
 - Training to be a emotional support dog *certificate earned*
 - Puppy Boot Camp [6 week course] located in Ballard
