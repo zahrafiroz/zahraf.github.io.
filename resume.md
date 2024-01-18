@@ -1,12 +1,12 @@
-# Rumi The ::Golden Retriever::
+# Rumi The *Golden Retriever*
 ## A Resume for my new modeling campaign with PetCo
 My mom thinks I am too young to have social media access (I am two years old but that is like 24 in dog years!) but you can contact me by opening a bag of treats and I will be there asap)
 
 ## Summary
 As a farm golden now living in the City I am trained for the hustle and bustle of everyday life in Seattle. I am able to concentrate on the job at hand even when it is not easy to do. I am also always camera ready and come with a ESA training and Puppy Boot Camp course certificate, not to mention my B.A. in Bestest Boy from UW. 
 
-## Experience 
-###University of Washington Seattle Campus b.a. in Bestest Boy
+## Experience and Education
+##University of Washington Seattle Campus b.a. in Bestest Boy
 * [University of Washington][] graduated valedictorian *
 ** Teachers PawSistant **
 - Being a good boy **the goodest boy to be exact**.
